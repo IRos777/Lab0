@@ -1,0 +1,2 @@
+Hello!
+My name is Irina and my major is Information Systems. I have a lot of experience woriking with computer hardware, but I want to be able to master both aspects - hardware and software along with the business management. Currently I do not work, my focus is raising a 3 year old son and finishing up my college degree. My hobby is buying broken computers on ebay, fixing and reselling them. My favorite tv show is Forensic Files, which I find fascinating. I wish our college had Digital Forensics program, I would definately have chosen this path. 
